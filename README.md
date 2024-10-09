@@ -1,0 +1,4 @@
+- 👋 Hey there folks Iam Soul
+- 👀 I’m interested in messing and learning about computers and I like tweaking with them to make them work in my way as well
+- 🌱 Currently just learning about all the fundamentals of computers to build a solid foundation 
+- 📫 you can reach me out on my discord which is "dark5ec"
